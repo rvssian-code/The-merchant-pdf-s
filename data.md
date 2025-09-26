@@ -1,2 +1,2 @@
 
-ohh my?
+ohh my God?im fucking tired
